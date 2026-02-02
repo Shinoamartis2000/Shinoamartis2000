@@ -84,7 +84,7 @@ Here are some personal and client-based projects I've completed:
 
 Feel free to reach out if you'd like to collaborate, discuss ideas, or just say hello!
 
-🌐 [LinkedIn](#) • [GitHub](https://github.com/your-username) • 📧 umeokekeprince@gmail.com
+🌐 [LinkedIn](https://www.linkedin.com/in/chidiebere-umeokeke-aa774a24a/?trk=public-profile-join-page) • [GitHub](https://github.com/Shinoamartis2000/Shinoamartis2000) • 📧 umeokekeprince@gmail.com
 
 ---
 
